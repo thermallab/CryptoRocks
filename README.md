@@ -1,2 +1,2 @@
 # CryptoRocks
-Seeking devoloper for project photo and video of sculptural objects. Subject: imaginary geology, Planets, evolution, Chemistry, physics, virtual worlds, virtual objects. 
+Seeking devoloper for project using photo and video of sculptural objects. Subject: imaginary geology, new planets, evolution, chemistry, physics, virtual worlds, virtual objects. 
