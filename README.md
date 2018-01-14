@@ -1,2 +1,2 @@
 # CryptoRocks
-Seeking devolve for virtual art using photo and video of real objects. Subject: imaginary geology, Planets, evolution
+Seeking devoloper for project photo and video of sculptural objects. Subject: imaginary geology, Planets, evolution, Chemistry, physics, virtual worlds, virtual objects. 
